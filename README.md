@@ -1,10 +1,5 @@
-# MickyV
-Micky V is a character from Production RP. In here you'll find the mad and the magic and a series of concepts that come with it. 
+"Micky V here lads, I thought I'd come and sit and talk about some of the sidequests and projects I've made"
+-------------------------------------------------------
 
-https://productionrp.fandom.com/wiki/Mikey_Vice
+Alot of the projects I write about here are dumb things I've put together while hanging around [ProductionRP](https://www.productionrp.org/)
 
-Why post it here? 
-
-*"Funny innit"* 
-
-In reality, while GitHub is a lot of code, in a way it's a lot of art. I hope at some point I'll post some of it. Some of the cool side projects I make and have permission to upload. 
