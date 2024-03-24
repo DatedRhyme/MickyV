@@ -9,9 +9,11 @@ DJing live into Five,M [I've done that a few times, let me tell you what works, 
 
 
 Big love to some great people:
-Ghost is stinky
+Ghost broke something
 Kerm doesn't sleep
 Boba has to deal with my dumb stuff, bless him
 Niebs never picks up my calls, still waiting on those cigars
 
 If I see strykz one of us is up past our bedtime
+
+I'm in not affiliated with PRP, but I like what they do a lot and enjoy seeing the continued success of the server <3 
