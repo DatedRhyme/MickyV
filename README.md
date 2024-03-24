@@ -9,10 +9,10 @@ DJing live into FiveM [I've done that a few times, let me tell you what works, w
 
 
 Big love to some great people:
-Ghost broke something
-Kerm doesn't sleep
-Boba has to deal with my dumb stuff, bless him
-Niebs never picks up my calls, still waiting on those cigars
+Ghost broke something,
+Kerm doesn't sleep,
+Boba has to deal with my dumb stuff, bless him,
+Niebs never picks up my calls, still waiting on those cigars,
 
 If I see strykz one of us is up past our bedtime
 
